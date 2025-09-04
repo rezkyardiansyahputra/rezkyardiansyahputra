@@ -1,5 +1,6 @@
 # 💫 About Me:
-I'm currently working on as a teacher<br>
+"Sometimes I'm an English teacher, sometimes a welding torch bearer, sometimes wrenching my old corolla, sometimes, tinkering my R732 that technician nobody dare to touch for being broken."
+<br>
 
 
 ## 🌐 Socials:
