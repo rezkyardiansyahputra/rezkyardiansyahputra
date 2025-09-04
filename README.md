@@ -1,5 +1,5 @@
 # 💫 About Me:
-"Sometimes I'm an English teacher, sometimes a welding torch bearer, sometimes wrenching my old corolla, sometimes, tinkering my R732 that technician nobody dare to touch for being broken."
+"Sometimes I’m an English teacher, sometimes a welding torch bearer, sometimes wrenching my old Corolla, and sometimes tinkering with my R732—the server no technician dares touch because it’s broken.”
 <br>
 
 
